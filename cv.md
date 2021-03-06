@@ -23,5 +23,5 @@ And Legal Professionals of BSU
 English A2
 
 **Hobby:**
- 
-I'm a guitar player
+
+I'm a guitar player and personal fitness couch
